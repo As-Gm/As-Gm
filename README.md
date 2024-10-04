@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @As-Gm
+- 👋 Hi, I’m @BODA
 - 👀 I’m interested in . technology 
 - 🌱 I’m currently learning .online marketing 
 - 💞️ I’m looking to collaborate on coming projects
